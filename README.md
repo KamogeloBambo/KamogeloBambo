@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KamogeloBambo
 - 👀 I'm all about chasing the stars ,hugging the trees and exploring the universe, one galaxy and forest at a time.
-- 🌱 I’m currently learning Buisness Information Technology
+- 🌱 I’m currently studing Buisness Information Technology
 - 💞️ I’m looking to collaborate with NASA
 - 📫 How to reach me kbambo.m@gmail.com
 - 😄 Pronouns: Him (Because i'm HIM)
